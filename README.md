@@ -31,6 +31,7 @@ And to provide the United States / Taiwan 50MB of web server space Unlimited
   Page content, is the site for all content providers, please judge for themselves the correctness and legality of the contents.
   
 6.本服務有權在您的網頁上放上廣告，請勿刪除
+
   The service has the right to put ads on your pages, don't delete ads.
   
   2015/10/29版
