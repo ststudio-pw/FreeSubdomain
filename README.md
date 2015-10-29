@@ -34,6 +34,8 @@ And to provide the United States / Taiwan 50MB of web server space Unlimited
 
   The service has the right to put ads on your pages, don't delete ads.
 
- 
 
+   2015/10/29版
+ 
+  ver.20151029
 
