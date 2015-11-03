@@ -38,4 +38,5 @@ And to provide the United States / Taiwan 50MB of web server space Unlimited
    2015/10/29版
  
   ver.20151029
-
+申請網址 : https://ocsb.pw/eftqjan9(https://ocsb.pw/eftqjan9) (Chinese)
+Sign up now : https://ocsb.pw/1zweq4tn(https://ocsb.pw/1zweq4tn) (English)
